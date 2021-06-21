@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Kathleen16R
 - 👀 I’m interested in psychology, art, and astrology. 
-- 🌱 I’m currently learning how to life weights, and use Adobe Creative Suite.
+- 🌱 I’m currently learning how to lift weights, and use Adobe Creative Suite.
 - 💞️ I’m looking to collaborate on cretive projects that center marginalized people and work for social justice.
 - 📫 How to reach me: kkr3fe@virginia.edu
 
